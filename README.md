@@ -9,6 +9,6 @@ You can also share it and share it to this forum
 
 demo at http://www.vizerweb.com/p/vizerlive.html
 
-to learn together you can open forim http://www.cogramer.blogspot.com
+to learn together you can open forim faranramdan.com
 
 Develop this project guys ...
